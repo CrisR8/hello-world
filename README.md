@@ -1,2 +1,4 @@
 # hello-world
-Aprendamos juntos &lt;3
+Aprendamos juntos 
+
+Me gustan las plantitas, viajar, la gimnasia y la lectura 
